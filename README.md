@@ -1,2 +1,0 @@
-# JustMagic.github.io
-Website
